@@ -1,0 +1,1 @@
+# pryamougolnik_zapolnyayushisya
